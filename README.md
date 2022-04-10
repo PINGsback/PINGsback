@@ -3,6 +3,6 @@
 - I'm also learning unity and c# because unity particle system
 - I don't want to be reached, why would you want to reach me
 
-I am a chromeos user's rights activist
-Chromeos goog
+I am a chromeos user's rights activist, chromeos goog
+
 Also a certified member of the AMCA (American Melatonin Consumer's Alliance)
